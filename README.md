@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ritek20mungali
-- 👀 I’m interested in Coding maybe
+- 👀 I’m interested in Coding 
 - 🌱 I’m currently learning anything
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
